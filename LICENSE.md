@@ -1,4 +1,4 @@
-# 
+# Get the ultimate CleanMyMac X for macOS plugin with CleanMyMac X for macOS instant Plugin: phishing-detection & ad-blocker. Featuring phishing-detection and ad-blocker, it's the
 
 
 
